@@ -1,1 +1,1 @@
-# Otthon-J-Kezekben.github.io
+# Otthon-Jó-Kezekben.github.io
